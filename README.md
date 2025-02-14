@@ -61,6 +61,8 @@ Im open to interactions 𝔸𝕃𝕎𝔸𝕐𝕊 so if i dont respond im probabl
 
 
 ![image](https://github.com/user-attachments/assets/e8a6ff5d-edd8-43a5-9193-d84c343363c3)
+
+
 ![image](https://github.com/user-attachments/assets/81bc98c6-2a42-41b5-95a7-02e846aa0f20)
 
 
