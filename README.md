@@ -76,7 +76,7 @@ Im open to interactions 𝔸𝕃𝕎𝔸𝕐𝕊 so if i dont respond im probabl
 
 ˳ 　   　౨౿　　⁺　　༄　　　༝　˳ 　   　౨౿　　⁺　　༄　　　༝　˳ 　   　౨౿　　⁺　　༄　　　༝　
 
-Anywas this was fun to make, 𝐨𝐧𝐜𝐞 𝐚𝐠𝐚𝐢𝐧 int or c+h with me plspslplspslspslspslslsplspsls. If you read all of this bs, thank you so so so much!!! hopefully we can become friends or if we are already friends hi ＩＬＹ lots!!
+Anyways this was fun to make, 𝐨𝐧𝐜𝐞 𝐚𝐠𝐚𝐢𝐧 int or c+h with me plspslplspslspslspslslsplspsls. If you read all of this bs, thank you so so so much!!! hopefully we can become friends or if we are already friends hi ＩＬＹ lots!!
 
 
 ![image](https://github.com/user-attachments/assets/69756b50-74ef-4e37-a5f0-837ee745d375)
